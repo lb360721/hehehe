@@ -1,2 +1,1 @@
-# hehehe
-heheheh
+看看怎么用
